@@ -1,1 +1,9 @@
 # Program_GUI_Matlab
+
+Anugerah A'raaf Disman
+
+200209500014
+
+PTIK - B
+
+UNIVERSITAS NEGERI MAKASSAR
